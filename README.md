@@ -1,1 +1,1 @@
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fstock.adobe.com%2Fuz%2Fsearch%3Fk%3D%2522ping%2520pong%2520table%2522&psig=AOvVaw3mmaWyP1cMENVmD-tssySI&ust=1715436925671000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCMDMgeeig4YDFQAAAAAdAAAAABAE
+https://t3.ftcdn.net/jpg/03/13/47/78/360_F_313477805_FjdtYLHA78oQBs4sYkPhVwNFDBotcCGi.jpg
